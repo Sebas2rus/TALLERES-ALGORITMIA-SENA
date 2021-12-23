@@ -1,0 +1,1 @@
+This is all the homework about algorith SENA
